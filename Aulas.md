@@ -2,7 +2,7 @@
 
 Olá, queridos alunos! 🎓  
 Sejam muito bem-vindos ao nosso curso de Informática Básica 🖥️!  
-Abaixo estão os links das aulas disponíveis. Vamos com tudo! 🚀  
+Abaixo estão os links das aulas disponíveis. 🚀  
 
 ---
 
